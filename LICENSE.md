@@ -1,4 +1,4 @@
-# 
+# Elite Paint.NET efeitos para Mac OS | Seguro Paint.NET efeitos para PC Windows. Com mesclagem HDR e ferramenta caligrafia — otimizado para máximo desempenho em cada plataforma.
 
 
 
